@@ -1,1 +1,1 @@
-A little look into the US campus crime rates back in 2015.
+University is already intimidating as it is. Anyways, here are the voilent crimes rate on various US campuses back in 2015.
